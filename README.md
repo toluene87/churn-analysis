@@ -144,6 +144,6 @@ customer-churn-analysis/
 
 **Toluwanimi Awofisayo**
 Mathematics Graduate | Data Analyst
-📧 irewamiriawofisayo@gmail.com
+📧 temijasopelincoln@gmail.com
 🔗www.linkedin.com/in/iréwámirí-awófisáyọ̀-745b9930a
 
